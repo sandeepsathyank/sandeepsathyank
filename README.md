@@ -86,7 +86,7 @@
 <div align="center">
 
 - 📍 Based in **Mattanur,Kannur, Kerala, India**
-- 📱 9645200701**
+- 📱 **9645200701**
 - 📫 Reach me at: **sandeepsathyank@gmail.com**
 
 <br>
